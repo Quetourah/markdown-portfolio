@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. FRIES ! :heart:
+2. Ice Cream
+3. Movie Night
